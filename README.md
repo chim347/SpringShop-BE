@@ -5,4 +5,4 @@
 * ...
 
 ### Connect me via nhanntse160792@gmail.com
-#### Copyright &#169; 2023 Chim347
+#### Copyright &#169; 2023 chim347
